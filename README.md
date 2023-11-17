@@ -60,7 +60,7 @@ Communication : establishing effective communication systems to coordinate respo
 Transportation and Resource Management - Managin transportation and logistics to support response operation
 
 
-DISASTER MANAGEMENT IN INDIA - A STATUS REPORT:-
+# DISASTER MANAGEMENT IN INDIA - A STATUS REPORT:-
 
 India is considered vulnerable to hazards on account of its unique geo-climatic conditieru. About 60% of the land mass in India is prone to earthquakes, while about 5% of total area is prone to cyclone and about 68% of the area is susceptible to drought. Though, the country has made scientific progress
 The loss of life and property has not decreased. The government of Initia has brought a shift in the approach to diastes management. The new approach proceeds from the convict on that develop- merd cannot be sustainble imbies diesels mitt gation usbuilt frito a development process! I think that it is necessary to mitigats disaster management all sectors.There is a need do Jeek at disasters from economic perspective. The acenomic dossess that one wardry. faces from disasters have a direct impact on the development process as it as not only costly but also hinders the growth projects in a country.
